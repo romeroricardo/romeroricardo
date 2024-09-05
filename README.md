@@ -2,7 +2,7 @@
 - 👀 I’m interested in Finance and Data Analytics
 - 📫 How to reach me: romero.rr.ricardo@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I hiked the Inka Trail to Machu Picchu 
+- ⚡ Fun fact: I enjoy hiking. I've hiked the Inka Trail to Machu Picchu, Angels Landing and Half Dome.
 
 <!---
 romeroricardo/romeroricardo is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
